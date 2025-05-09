@@ -1,2 +1,3 @@
-# 🏅 Certificates  
-> A curated archive of my **certifications**, **accolades**, and **achievements** — proof of continuous learning, skill-building, and professional growth.
+# 🏆 Certificates  
+📜 **Proof of Skill, Passion & Progress**  
+> A curated collection of certificates and accolades — 🧠 formal recognitions that highlight my dedication to 📈 growth, 📚 learning, and 🌟 excellence across disciplines.
